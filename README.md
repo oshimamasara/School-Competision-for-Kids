@@ -1,6 +1,6 @@
 ## DEMO
 
-http://oshimamasara.rf.gd/01/
+❌　http://oshimamasara.rf.gd/01/
 
 ## こどもの勉強意欲が湧くWebページ
 
